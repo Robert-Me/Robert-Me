@@ -2,7 +2,7 @@
 - 👀 I’m interested in innovative projects like Ethereum.
 - 🌱 I’m currently learning more about sustainability related topics regarding crypto currencies.
 - 💞️ I’m looking to collaborate on the Ethereum project.
-- 📫 How to reach me: I am not looking currently for messages etc. Thank you very much.
+- 📫 How to reach me: Currently, I am not looking for messages etc. Thank you very much.
 Have a nice day and stay healthy!
 
 <!---
